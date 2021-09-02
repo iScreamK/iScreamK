@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iScreamK!
-- 👀 I’m interested very in programming.
+- 👀 I’m interested in learning something new.
 - 🌱 I’m currently learning... secret.
 - 📫 How to reach me: +639260865515
 
